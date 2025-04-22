@@ -1,5 +1,5 @@
 # 💫 About Me:
-Crafting Seamless User Experiences | Front-End & App Developer | Passionate About Hardware Tech
+Crafting Seamless User Experiences | Front-End Web & App Developer | Passionate About Hardware Tech
 
 
 ## 🌐 Socials:
